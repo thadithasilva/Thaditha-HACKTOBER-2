@@ -1,1 +1,0 @@
-# Thaditha-HACKTOBER-2
